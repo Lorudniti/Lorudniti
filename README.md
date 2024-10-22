@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lorudniti
 - 👀 I’m interested in Writter
 - 🌱 I’m currently learning MANHWA
-- 💞️ I’m looking to collaborate on Nothing
+- 💞️ I’m looking to collaborate on My Studio ( AuréalisStudio )
 - 📫 How to reach me Valxmailpro@gmail.com
 - 😄 Pronouns: Uniti
 - ⚡ Fun fact: I start Writting Cause A Dreamin Was So Real And I Start Writte And Draw
