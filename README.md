@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lorudniti
+- 👋 Hi, I’m @LordUniti
 - 👀 I’m interested in Writter
 - 🌱 I’m currently learning MANHWA
 - 💞️ I’m looking to collaborate on My Studio ( AuréalisStudio )
