@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @LordUniti
 - 👀 I’m interested in Writter
 - 🌱 I’m currently learning MANHWA
-- 💞️ I’m looking to collaborate on My Studio ( AuréalisStudio )
+- 💞️ I’m looking to collaborate on Nothings
 - 📫 How to reach me Valxmailpro@gmail.com
-- 😄 Pronouns: Uniti
+- 😄 Pronouns: LordUniti
 - ⚡ Fun fact: I start Writting Cause A Dreamin Was So Real And I Start Writte And Draw
 
 <!---
